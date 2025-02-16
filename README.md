@@ -1,0 +1,1 @@
+# Havard-ai-course-projects
